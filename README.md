@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bhupigarg03
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Programming Language
+- 🌱 I’m currently exoloring new Programming Language.
 - 💞️ I’m looking to collaborate on Instagram (bhupigarg03)
 - 📫 Mail me : bhupeshgarg38@gmail.com
 
